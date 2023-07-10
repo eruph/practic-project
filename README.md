@@ -1,1 +1,1 @@
-https://ArsenyKnowing.github.io/practic-project/
+https://eruph.github.io/practic-project/
